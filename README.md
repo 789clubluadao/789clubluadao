@@ -1,16 +1,13 @@
-### Hi there 👋
+### 789 Club lừa đảo
 
-<!--
-**789clubluadao/789clubluadao** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+789 Club lừa đảo, thắng bị khoá tài khoản không cho rút tiền có thật không?
 
-Here are some ideas to get you started:
+Hiện tại 789club có số lượng người chơi đông đảo, liên tục tăng theo từng ngày. Và việc gì cũng có 2 mặt của nó cả, đi kèm với sự phát triển rộng khắp và lượng người chơi ngày càng đông, thì 789club cũng vướng phải không ít tin đồn lừa đảo, lừa gạt người chơi nhan nhản trên các trang mạng xã hội và diễn đàn công nghệ.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+https://iwinios.link/game/789-club-lua-dao/
+
+https://www.tumblr.com/789clubluadao
+
+https://gab.com/789clubluadao
+
+https://ok.ru/profile/592979478702/statuses/156836520898734
